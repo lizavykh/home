@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dopewhiskers
 - 👀 I’m interested in cats, video games and vinyl records
 - 🌱 I’m currently learning user centered design and web developing skills
-- 💞️ I’m looking to collaborate on anything
+- 💞️ I’m looking to network!
 - 📫 Discord: dopewhiskers#0590 
 
 <!---
